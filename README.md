@@ -1,1 +1,5 @@
+RENDERED has been started solely on just one mission in mind is to provide latest and useful technology information to our users. It is in our core culture to let users experience what they want to and it is our duty to provide that experience.  
 
+We are a new company and users always have some questions in their mind regarding the product, services and some other questions related to our services and website. To answer your questions, you can go to our FAQ's page or you can just email us here. We will get back to you within 1-2 business days.  
+
+Here on RENDERED, we always thrive to work hard and provide you guys the latest information from around the globe. Expressing views and opinions is always important for people and without saying out anything, users won't be able to understand or get what other users think about the content. User readibilty and interactivity has always been our first priority because we love our readers and we like how they will be interacting in the future itself and express themselves.
